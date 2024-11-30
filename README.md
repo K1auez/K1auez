@@ -1,5 +1,5 @@
 #### Desenvolvedor de Software
-# Olá!!! Eu sou o Kauê de Souza👋
+# Olá!!! Eu sou o Kauê👋
 
 
 <div> 
